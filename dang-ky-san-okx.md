@@ -16,7 +16,7 @@ OKX là một trong những sàn giao dịch tiền mã hóa lớn nhất thế 
 ### Bước 1: Truy cập trang web hoặc tải ứng dụng OKX
 
 Để đăng ký tài khoản, bạn cần truy cập vào trang web chính thức hoặc tải ứng dụng:
-- **Truy cập trang web chính thức:** [OKX Website](https://www.okx.com)
+- **Truy cập trang web chính thức:** [OKX Website](https://tradefulltime97.com/go/okx)
 - **Tải ứng dụng OKX:**
   - **Android:** Google Play Store
   - **iOS:** Apple App Store
